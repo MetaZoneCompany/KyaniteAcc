@@ -1,3 +1,3 @@
 # KyaniteAcc
-Good ☾ AccuntNuker's ☽ made by  stoned.eagle#6666 
+Good ☾ AccuntNuker's ☽ 
 Enter Token and enjoy with Nuke :)
